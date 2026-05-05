@@ -1,0 +1,1 @@
+analiza  el archivo adjunto y crea la pagina de inicio de una webside para negocio la pagina debe ser detallada y en español altamente legible debe tener estilo minimalista o ilustraciones de alto impacto y fuentes elegantes y los iconos solamente necesario para la fase de inversion para la mejor usabilidad de la pagina.M
